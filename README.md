@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @vedu443
+- 👀 I’m interested in - AI
+- 🌱 I’m currently learning - AI
+- 📫 How to reach me - Discord - Cool_Guy#0550
